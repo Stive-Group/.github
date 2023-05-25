@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-🙋‍♀️ Stive Group is an online IT services companu providing support and management for businesses across the globe. 
+🙋‍♀️ Due to financial circumstances, Stive Group closed in 2023. We are expanding our organisation "Elele Team" which has just launched in the US.
